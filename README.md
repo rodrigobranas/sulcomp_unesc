@@ -1,1 +1,1 @@
-Para mais informações acesse https://branas.io
+Para mais informações sobre cursos acesse https://branas.io
